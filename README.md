@@ -1,3 +1,5 @@
+# <a href="https://bit.ly/jackdegame">ANMELDEBONUS 100% bis zu 500€ + 200 FS</a>
+
 # Tipico - Sportwetten & Online Casino | Jetzt Live Wetten & Games
 
 Willkommen bei Tipico, Ihrer führenden Adresse für Sportwetten und Casino-Entertainment. Unsere Plattform vereint die Spannung von Live-Wetten mit der Unterhaltung erstklassiger Casino-Spiele. Genießen Sie ein umfassendes Angebot an Sportwetten mit konkurrenzfähigen Quoten, von Fußball über die Bundesliga bis hin zur Champions League.
